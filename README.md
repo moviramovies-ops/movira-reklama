@@ -1,5 +1,7 @@
 # movira-reklama
 
 
-https://github.com/user-attachments/assets/b6c0f52b-c720-4f5b-acc5-7c55e621889d
+
+
+https://github.com/user-attachments/assets/cab0ff14-9876-4d57-a841-369495fde5fa
 
